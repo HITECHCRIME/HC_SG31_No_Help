@@ -1,6 +1,7 @@
 # HC_SG31_no_help
 Hitech Crime Single 'No Help'
 
+fuck your moods ciociacaro
 https://www.youtube.com/watch?v=N_qdXVsdpfQ (chainsaw type beat)
 
 first ya shoot then ask
