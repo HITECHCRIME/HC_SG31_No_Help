@@ -3,17 +3,24 @@ Hitech Crime Single 'No Help'
 
 fuck your moods ciociacaro
 https://www.youtube.com/watch?v=N_qdXVsdpfQ (chainsaw type beat)
+https://www.youtube.com/watch?v=r2tYcYsMdFE Keith Ape x OmenXII Type Beat - "Dead Again" - Prod.Kōri
+https://www.youtube.com/watch?v=2BLMyyb9LgE [FREE] Omen XIII x LiL Xan x Ronny J Type Beat "Yakuza" (prod. by Discent x .moontalk)
+
+0:32
 
 first ya shoot then ask
-then ya fucking bite, then flame on edge of the knife
-edge of the knife, stab
-dash to me assign the blame
-helping hand covered in marks
-fuck you repels the blade
-i'll forget your name
+then ya fucking bite, put out the flame on edge of the knife
+edge of the knife charred me
+dash then assign the blame
+my helping hand covered in blood marks
+fuck you works like a charm, 
+forgot when your name repelled blades
 
 scags of unknown origin
 they come from attention hoes
+
+no no no help
+from me, you're too far gone bitch
 
 no no no help
 from me, you're too far gone bitch
