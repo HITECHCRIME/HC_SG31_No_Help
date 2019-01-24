@@ -2,9 +2,11 @@
 Hitech Crime Single 'No Help'
 
 fuck your moods ciociacaro
-https://www.youtube.com/watch?v=N_qdXVsdpfQ (chainsaw type beat)
-https://www.youtube.com/watch?v=r2tYcYsMdFE Keith Ape x OmenXII Type Beat - "Dead Again" - Prod.Kōri
+https://www.youtube.com/watch?v=r2tYcYsMdFE Keith Ape x OmenXII Type Beat - "Dead Again" - Prod.Kōri (deleted)
 https://www.youtube.com/watch?v=2BLMyyb9LgE [FREE] Omen XIII x LiL Xan x Ronny J Type Beat "Yakuza" (prod. by Discent x .moontalk)
+
+https://www.youtube.com/watch?v=N_qdXVsdpfQ (chainsaw type beat)
+^ use this one
 
 0:32
 
