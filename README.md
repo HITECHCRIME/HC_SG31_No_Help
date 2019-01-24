@@ -8,7 +8,7 @@ https://www.youtube.com/watch?v=2BLMyyb9LgE [FREE] Omen XIII x LiL Xan x Ronny J
 https://www.youtube.com/watch?v=N_qdXVsdpfQ (chainsaw type beat)
 ^ use this one
 
-0:32
+0:17
 
 first ya shoot then ask, then ya fucking bite, 
 put out the flame on edge of the knife
