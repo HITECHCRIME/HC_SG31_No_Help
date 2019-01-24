@@ -14,8 +14,10 @@ edge of the knife charred me -
 dash then assign the blame to my helping hand 
 
 covered in blood marks saying
-fuck you works (again) like a charm, 
+fuck you works (again) like a charm aye 
 forgot your name repelled the blades
+
+
 
 scags of unknown origin
 they come from attention hoes
