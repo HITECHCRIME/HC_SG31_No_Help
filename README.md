@@ -8,13 +8,14 @@ https://www.youtube.com/watch?v=2BLMyyb9LgE [FREE] Omen XIII x LiL Xan x Ronny J
 
 0:32
 
-first ya shoot then ask
-then ya fucking bite, put out the flame on edge of the knife
-edge of the knife charred me
-dash then assign the blame
-my helping hand covered in blood marks
-fuck you works like a charm, 
-forgot when your name repelled blades
+first ya shoot then ask, then ya fucking bite, 
+put out the flame on edge of the knife
+edge of the knife charred me -
+dash then assign the blame to my helping hand 
+
+covered in blood marks saying
+fuck you works (again) like a charm, 
+forgot your name repelled the blades
 
 scags of unknown origin
 they come from attention hoes
