@@ -16,9 +16,9 @@ edge of the knife charred me -
 dash then assign the blame to my helping hand 
 
 covered in blood marks saying
-fuck you works (again) like a charm aye 
+fuck you works (again) like a charm (aye) 
 forgot your name repelled the blades
-
+none will pass through your heart now
 
 
 scags of unknown origin
